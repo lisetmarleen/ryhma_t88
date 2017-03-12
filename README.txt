@@ -1,1 +1,0 @@
-Meie R�hmat�� repository!!
